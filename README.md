@@ -1,0 +1,9 @@
+- Hellloooo- I’m Strawberryy
+- umm i like yttd, omori, danganronpa, ponytown, sonic, mario
+- i go by she/they/he
+- im genderfluidd and arooacceee
+- im a massive introvert
+- dont try to ask me how im doing cuz i'll just respond with im fine even if im not soo
+- im your local loserrr
+- i have a strawpage and discordd
+- ummmm thats all i guess soooooo uhhh idk
